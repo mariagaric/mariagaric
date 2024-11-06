@@ -1,6 +1,6 @@
 
 # Hello, I'm Maria!
-Hi! I'm a Computer Engineering student specializing in Software Engineering at Jönköping University, expected to graduate in 2026. I’m passionate about coding, problem-solving, and building impactful software. I’d welcome the chance to discuss any positions that align with my skills and interests if you know of any opportunities @maria.garic@hotmail.com
+Hi! I'm a Computer Engineering student specializing in Software Engineering at Jönköping University, expected to graduate in 2026. I’m passionate about coding, problem-solving, and building impactful software. I’d welcome the chance to discuss any positions that align with my skills and interests if you know of any opportunities maria.garic@hotmail.com
 
 
 
